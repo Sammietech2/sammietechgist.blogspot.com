@@ -1,1 +1,1 @@
-# sammietechgist.blogspot.com
+# sammietechbloggist.blogspot.com
